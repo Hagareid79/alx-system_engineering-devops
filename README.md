@@ -1,1 +1,1 @@
-system develop
+sell per
